@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @SamikshaPradhan
+- 👀 I’m a soon to graduate undergrad student.
+- 👀 Expected graduation: 07/25/22
+- 🌱 Major: Computer Science 
+- 🌱 Minor: Mathematics
+- 💞️ I’m looking for opportunities to enhance my knowledge and skills.
+- 📫 Reach me via smixaprdn@gmail.com
